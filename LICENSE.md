@@ -1,4 +1,4 @@
-# 
+# exclusive Figma for macOS Panel | vector tools + layer styles offers the most advanced Figma for macOS panel, with vector tools and layer styles. Ideal for professional designers
 
 
 
